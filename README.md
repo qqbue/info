@@ -8,8 +8,8 @@ Here have some links :
 
 MyData:https://github.com/qqbue/info/tree/master/MyData
 UserName:https://github.com/qqbue/info/blob/master/MyData/UserName.md
-TelNum:
 Person:https://github.com/qqbue/info/tree/master/Person
+Tel:https://github.com/qqbue/info/tree/master/Person/Tel_Street
 
 
 
