@@ -8,7 +8,7 @@
 .Apple 账号auyueandy@icloud.com 密码yY2
 .gitHab账号qqbue@sina.com 密码iI22
 
-.宽带 账号055490504400密码3123..3.
+.宽带 账号05549050440密码312..3.
 .图灵123http://www.tuling123.com/member/center/index.jhtml
  账号YUEANDY 密码iI2
 
