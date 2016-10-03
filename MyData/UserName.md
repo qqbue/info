@@ -23,6 +23,6 @@
 Google登陆网址：https://accounts.google.com/AddSession?service=accountsettings&continue=https://myaccount.google.com/?pli%3D1#identifier
 
 
-曾用过的摩玛
+曾用过的密码
 YE|74|y2|iI2|yY2
 
