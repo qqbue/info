@@ -1,3 +1,4 @@
+26棋 https://item.taobao.com/item.htm?spm=a1z3i.7c.footer.4&id=37653013401
 算盘42 https://item.taobao.com/item.htm?id=536211928795&spm=0.0.0.0.1MlMKx&sid=929d2369a8596aeae3fbfc9e25e83ebf&rn=44d22d4cad9297900522ea079cc2f1aa&abtest=26
 
 79 铲子：https://item.taobao.com/item.htm?id=521476124464&ali_refid=a3_420434_1006:1108152828:N:%E5%A4%9A%E5%8A%9F%E8%83%BD%E6%88%B7%E5%A4%96%E9%93%B2%E5%AD%90:4bee969b91cb8e6015dd364fa207cdcc&ali_trackid=1_4bee969b91cb8e6015dd364fa207cdcc&spm=a230r.1.1957635.26.PBqFeY
