@@ -1,3 +1,6 @@
+243显微镜第二个 ： https://detail.m.tmall.com/item.htm?id=18290917256&sid=82f5bcaf15dad4843cdd75b494268ff4&rn=ac84620a514fe17da4b89e282208fb2c&abtest=16&skuId=43160844475
+中学物理电学实验箱初中电磁学教学仪器材试验盒发电机电磁铁电铃
+
 26棋 https://item.taobao.com/item.htm?spm=a1z3i.7c.footer.4&id=37653013401
 算盘42 https://item.taobao.com/item.htm?id=536211928795&spm=0.0.0.0.1MlMKx&sid=929d2369a8596aeae3fbfc9e25e83ebf&rn=44d22d4cad9297900522ea079cc2f1aa&abtest=26
 
