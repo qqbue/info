@@ -1,3 +1,4 @@
+19.8的c语言编程书 https://detail.tmall.com/item.htm?id=538986611401&cm_id=140105335569ed55e27b&abbucket=3
 网络系统 https://detail.tmall.com/item.htm?spm=a230r.1.14.4.Dz9dK9&id=44527155366&ns=1&abbucket=3
 手表94EZON宜准电子表男表运动表防水夜光跑步户外休闲学生时尚手表女表
 94：http://h5.m.taobao.com/awp/core/detail.htm?spm=a230r.1.14.213.dpN2gG&id=540746126000&ns=1&abbucket=10#detail
